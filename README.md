@@ -1,7 +1,7 @@
 👋 Hi, I’m @teresamrsantos
 
 
-🌱 I’m currently experimenting and learning. <br/> <br/>
+🌱  <br/> <br/>
  &nbsp; &nbsp;
 
 
